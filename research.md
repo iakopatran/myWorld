@@ -1,3 +1,6 @@
+Tumblr’s Mental Health Community: The Patterns of Microblogging on Trends of Depression  
+Shannon Jordan Wright  
+http://libres.uncg.edu/ir/asu/f/Wright,%20Shannon%20Spring%202015.pdf  
 #Sharing negative images leads to a cycle of sharing negative images
 -Romanticise self-harm/suicide  
 -Getting “likes” and seeing similar negative images reinforces the negative behavior  
